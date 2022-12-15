@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @christinasimon.
+- 👀 I’m interested in healthcare, travel, and art.
+- 🌱 I’m currently learning coding language.
+- 📫 You can contact me at cmsimon95@gmail.com
